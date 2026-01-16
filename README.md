@@ -1,4 +1,4 @@
 # apnacollege-domo1
 This is first Repogetry 
 <br>
-Auther - Shradha Khapra
+Auther - Shradha (apna college )
